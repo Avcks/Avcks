@@ -2,7 +2,7 @@
 
 👀 I’m interested in Computer
 
-🌱 I’m currently in BCA Field
+🌱 I’m currently in IMCA Field
 
 📫 To reach me :- 
 
